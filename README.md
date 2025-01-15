@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **yashjuneja31@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/dfjNQ](https://shorturl.at/dfjNQ)
+- 📄 Know about my experiences [Linkedin Profile](https://www.linkedin.com/in/sdeyogesh/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
